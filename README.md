@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **devashreechaturvedi@gmail.com**
 
-- 📄 Know about my experiences [[View Experience]](https://drive.google.com/file/d/1cidMRAJvLyRjKIxyO68cj3P3RaUXJ_Bg/view?usp=drive_link)
+- 📄 Know about my experiences [[View Portfolio]](https://d1-eva.github.io/Portfolio.github.io/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
