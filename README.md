@@ -4,7 +4,7 @@
 
 
 
-- 📫 How to reach me **devashreechaturvedi@gmail.com**
+- 📫 How to reach me **devachaturvedi29@gmail.com**
 
 - 📄 Know about my experiences [[View Portfolio]](https://d1-eva.github.io/Portfolio.github.io/)
 
