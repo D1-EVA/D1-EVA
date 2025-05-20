@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **devachaturvedi29@gmail.com**
 
-- 📄 Know about my experiences [[View Portfolio]](https://d1-eva.github.io/Portfolio.github.io/)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
